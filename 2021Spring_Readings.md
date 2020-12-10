@@ -11,7 +11,7 @@
 
 ## Class 2 - January 25, 2021
 - VIII.B. The Nonendorsement Principle, History's Relevance, and de Facto Establishments [CB 559-578]
-- VIII.C. Impermissible Purposes
+- VIII.C. Impermissible Purposes [CB 578-593]
 
 ## Class 3 - January 27, 2021
 - VIII.D. Facially Neutral Statutes that Incidentally Aid Religion [CB 593-616]
