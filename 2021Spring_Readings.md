@@ -2,7 +2,7 @@
 
 ### Required materials
 1. Stone, Seidman, Sunstein, Tushnet, Karlan, _The First Amendment_ (6th ed. 2020)
-2. All other readings will be found on Canvas or at the links provided.zoom
+2. All other readings will be found on Canvas or at the links provided.
 
 ## Class 1 - January 20, 2021
 - II. The Constitution and Religion [CB 521-523]
