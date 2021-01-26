@@ -14,7 +14,8 @@
 - VIII.C. Impermissible Purposes [CB 578-593]
 
 ## Class 3 - January 27, 2021
-- VIII.D. Facially Neutral Statutes that Incidentally Aid Religion [CB 593-616]
+- continuing with Impermissible Purposes
+-  VIII.D. Facially Neutral Statutes that Incidentally Aid Religion [CB 593-616]
 
 ## Class 4 - February 1, 2021
 - IX. Free Exercise [CB 617-640]
