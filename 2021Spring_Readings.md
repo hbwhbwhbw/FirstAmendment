@@ -25,7 +25,7 @@
 - The Religious Freedom Restoration Act [Canvas]
 
 ## Class 6 - February 10, 2021
-- X. Permissible Accommodation [CB 641-656, 657-659 n.3]
+- X. Permissible Accommodation [CB 641-651, 655-656]
 
 ## Class 7 - February 15, 2021
 - I. The History and Philosophy of Free Expression [CB 3-17]
