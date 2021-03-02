@@ -40,14 +40,14 @@
 
 ## Class 9 - March 1, 2021
 - II.B. Speech that Provokes a Hostile Audience Reaction [CB 72-93]
-- IV.C. Threats [CB 162-166]
 
 ## Class 10 - March 3, 2021
-- IV.A. Low Value Speech: False Statements of Fact [CB 129-154]
+- IV.C. Threats [CB 162-166]
+- IV.A. Low Value Speech: False Statements of Fact [CB 129-143]
 
 ## Class 11 - March 8, 2021
+- IV.A cont'd [144-153]
 - III. Vagueness, Overbreadth, and Prior Restraint [109-124]
-- In re NSL (Canvas)
 
 ## Class 12 - March 10, 2021
 - IV.E. Low Value Speech: Obscenity [CB 189-211]
