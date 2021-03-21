@@ -57,7 +57,8 @@
 - IV.G. Offensive and Indecent Speech [CB 226-252]
 
 ## Class 14 - March 24, 2021
-- IV.H. Hate Speech [CB 253-279, 282-285]
+- IV.F. Child Pornography, Animal Cruelty, and Violent Expression [CB 211-225]
+- IV.H. Hate Speech [CB 253-279]
 
 ## Class 15 - March 29, 2021
 - IV.D. Commercial Advertising [CB 167-188]
