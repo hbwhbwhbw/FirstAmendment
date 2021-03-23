@@ -58,7 +58,7 @@
 
 ## Class 14 - March 24, 2021
 - IV.F. Child Pornography, Animal Cruelty, and Violent Expression [CB 211-225]
-- IV.H. Hate Speech [CB 253-279]
+- IV.H. Hate Speech [CB 253-256, 262-73]
 
 ## Class 15 - March 29, 2021
 - IV.D. Commercial Advertising [CB 167-188]
