@@ -58,11 +58,10 @@
 
 ## Class 14 - March 24, 2021
 - IV.F. Child Pornography, Animal Cruelty, and Violent Expression [CB 211-225]
-- IV.H. Hate Speech [CB 253-256, 262-73]
 
 ## Class 15 - March 29, 2021
+- IV.H. Hate Speech [CB 253-256, 262-73]
 - IV.D. Commercial Advertising [CB 167-188]
-- _Sorrell v. IMS Health_ (Canvas)
 
 ## Class 16 - March 31, 2021
 - V.C. Symbolic Conduct [CB 376-401]
@@ -70,9 +69,9 @@
 ## Class 17 - April 5, 2021
 - V.A. Content-Neutral Restrictions: General Principles [CB 285-297]
 - Reed v. Town of Gilbert [CB 351-352]
-- V.B.1. The Public Forum: Streets and Parks [CB 298-308]
 
 ## Class 18 - April 7, 2021
+- V.B.1. The Public Forum: Streets and Parks [CB 298-308]
 - V.B.2. The Public Forum: Other Publicly Owned Property [CB 311-323]
 
 ## Class 19 - April 12, 2021
