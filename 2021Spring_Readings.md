@@ -81,14 +81,14 @@
 - V.D. Other Means of Expression [CB 402-420]
 
 ## Class 21 - April 19, 2021
-- V.E. Campaign Finance [CB 421-449]
+- VI.D. Media Regulation [CB 501-518]
+- USTA v. FCC (Kavanaugh, J., dissenting) (Canvas)
 
 ## Class 22 - MAKEUP
+- V.E. Campaign Finance [CB 421-449]
 - V.E. Campaign Finance cont'd [CB 449-477]
 
 ## Class 23 - MAKEUP
 - VI.A.-C Press Freedom & Differential Treatment [CB 481-498]
 
-## Class 24 - MAKEUP
-- VI.D. Media Regulation [CB 501-518]
-- USTA v. FCC (Kavanaugh, J., dissenting) (Canvas)
+## Class 24 - Review session
