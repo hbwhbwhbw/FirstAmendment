@@ -82,7 +82,6 @@
 
 ## Class 21 - April 19, 2021
 - VI.D. Media Regulation [CB 501-518]
-- USTA v. FCC (Kavanaugh, J., dissenting) (Canvas)
 
 ## Class 22 - MAKEUP
 - V.E. Campaign Finance [CB 421-449]
