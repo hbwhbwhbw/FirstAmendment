@@ -32,7 +32,8 @@
 ## Class 7 - February 22, 2021
 - I. The History and Philosophy of Free Expression [CB 3-17]
 - II.A. Content-Based Restrictions: Dangerous Ideas and Information [CB 19-24, 27-46]
-  - _Masses_, _Schenck_, _Debs_, _Abrams_, _Gitlow_, _Whitney_, & Notes   
+  - _Masses_, _Schenck_, _Debs_, _Abrams_,
+      _Gitlow_, _Whitney_, & Notes   
 
 ## Class 8 - February 24, 2021
 - II.A. Content-Based Restrictions: Dangerous Ideas and Information cont'd [CB 46-71]
@@ -90,4 +91,5 @@
 ## Class 23 - MAKEUP
 - VI.A.-C Press Freedom & Differential Treatment [CB 481-498]
 
-## Class 24 - Review session
+## Class 24 - Review session -   April 23, 2021
+- please submit questions via this anonymous form: https://docs.google.com/forms/d/1E92riaB23WWdRtbba_9ZTHojTJR3ANQwDJE5T3Wj2K8/prefill
