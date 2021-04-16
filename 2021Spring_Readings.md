@@ -84,12 +84,12 @@
 ## Class 21 - April 19, 2021
 - VI.D. Media Regulation [CB 501-518]
 
-## Class 22 - MAKEUP
+## Class 22 and 23 - MAKEUP
 - V.E. Campaign Finance [CB 421-449]
 - V.E. Campaign Finance cont'd [CB 449-477]
 
-## Class 23 - MAKEUP
+## Class 24 - MAKEUP
 - VI.A.-C Press Freedom & Differential Treatment [CB 481-498]
 
-## Class 24 - Review session -   April 23, 2021
+## Review session -   April 23, 2021
 - please submit questions via this anonymous form: https://docs.google.com/forms/d/1E92riaB23WWdRtbba_9ZTHojTJR3ANQwDJE5T3Wj2K8/prefill
