@@ -92,4 +92,4 @@
 - VI.A.-C Press Freedom & Differential Treatment [CB 481-498]
 
 ## Review session -   April 23, 2021
-- please submit questions via [this anonymous form](https://docs.google.com/forms/d/1E92riaB23WWdRtbba_9ZTHojTJR3ANQwDJE5T3Wj2K8/prefill).
+- please submit questions via [this anonymous form](https://forms.gle/WPKW8a7ukhjCYER57).
