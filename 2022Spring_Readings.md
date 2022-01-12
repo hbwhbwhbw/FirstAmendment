@@ -1,5 +1,5 @@
 ## Class 1 - January 19, 2022
-4.1 The Religion Clauses - A Brief History of the Religion Clauses (CB 627-635)
+4.1 The Religion Clauses - A Brief History of the Religion Clauses (CB 627-635)  
 4.2 The Definition of "Religion" (CB 635-640)
 
 ## Class 2 - January 24, 2022
@@ -18,11 +18,11 @@
 4.5 Reconciling the Religion Clauses (CB 765-780)
 
 ## Class 7 - February 9, 2022
-1.1 Free Speech - An Overview (CB 1-16)
+1.1 Free Speech - An Overview (CB 1-16)  
 1.2 Incitement to Violence or Subversion (CB 16-31)
 
 ## Class 8 - February 14, 2022
-1.2 Incitement to Violence or Subversion cont'd (CB 31-55)
+1.2 Incitement to Violence or Subversion cont'd (CB 31-55)  
 1.3 Fighting Words (CB 55-57)
 
 ## Class 9 - February 16, 2022
