@@ -1,3 +1,5 @@
+# Religious Freedom
+
 ## Class 1 - January 19, 2022
 4.1 The Religion Clauses - A Brief History of the Religion Clauses (CB 627-635)  
 4.2 The Definition of "Religion" (CB 635-640)
@@ -17,6 +19,7 @@
 ## Class 6 - February 7, 2022
 4.5 Reconciling the Religion Clauses (CB 765-780)
 
+# Free Expression
 ## Class 7 - February 9, 2022
 1.1 Free Speech - An Overview (CB 1-16)  
 1.2 Incitement to Violence or Subversion (CB 16-31)
