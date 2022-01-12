@@ -2,7 +2,7 @@
 
 ## Class 1 - January 19, 2022
 4.1 The Religion Clauses - A Brief History of the Religion Clauses (CB 627-635)  
-4.2 The Definition of "Religion" (CB 635-639)
+4.2 The Definition of "Religion" (CB 635-639)  
 4.3 The Free Exercise of Religion (CB 640-650)
 
 ## Class 2 - January 24, 2022
