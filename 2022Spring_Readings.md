@@ -7,7 +7,7 @@
 
 ## Class 2 - January 24, 2022
 4.3 The Free Exercise of Religion (CB 650-685)  
-Note on Tandon v. Newsom (Supp. 37-38)
+Notes on Tandon v. Newsom, Our Lady of Guadalupe School v. Morrissey-Berru, and Fulton v. City of Philadelphia (Supp. 37-42)
 
 ## Class 3 - January 26, 2022
 4.4 The Establishment Clause - Public Financial Aid to Religious Institutions (CB 685-714)
