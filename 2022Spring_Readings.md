@@ -6,7 +6,7 @@
 4.3 The Free Exercise of Religion (CB 640-650)
 
 ## Class 2 - January 24, 2022
-4.3 The Free Exercise of Religion (CB 650-685)
+4.3 The Free Exercise of Religion (CB 650-685)  
 Note on Tandon v. Newsom (Supp. 37-38)
 
 ## Class 3 - January 26, 2022
