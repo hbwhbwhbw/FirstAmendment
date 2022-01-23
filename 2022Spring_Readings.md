@@ -17,6 +17,7 @@ Notes on Tandon v. Newsom, Our Lady of Guadalupe School v. Morrissey-Berru, and 
 
 ## Class 5 - February 2, 2022
 4.4 The Establishment Clause - Public Displays of Religious Symbols (CB 735-765)
+Note on American Humanist Association (Supp. 42-48)
 
 ## Class 6 - February 7, 2022
 4.5 Reconciling the Religion Clauses (CB 765-780)
