@@ -13,10 +13,10 @@ Notes on Tandon v. Newsom, Our Lady of Guadalupe School v. Morrissey-Berru, and 
 4.4 The Establishment Clause - Public Financial Aid to Religious Institutions (CB 685-714)
 
 ## Class 4 - January 31, 2022
-4.4 The Establishment Clause - Religion in Public Schools (CB 714-735)
+4.4 The Establishment Clause - Religion in Public Schools (CB 714-730)
 
 ## Class 5 - February 2, 2022
-4.4 The Establishment Clause - Public Displays of Religious Symbols (CB 735-765)
+4.4 The Establishment Clause - Public Displays of Religious Symbols (CB 730-765)
 Note on American Humanist Association (Supp. 42-48)
 
 ## Class 6 - February 7, 2022
