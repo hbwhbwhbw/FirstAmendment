@@ -35,21 +35,26 @@ Note on American Humanist Association (Supp. 42-48)
 2.3 Overbreadth, Vagueness, and Prior Restraint (CB 417-455)
 
 ## Class 10 - February 21, 2022
+2.3 Prior Restraint (CB 435-455)  
 1.3 Hostile Audiences (CB 57-72)
-1.4 Injury to Reputation, Sensibility, Dignity, Equality - Libel (CB 72-90)
+
 
 ## Class 11 - February 23, 2022
-1.4 Injury to Reputation, Sensibility, Dignity, Equality - Privacy Torts, IIED, and Hate Speech (CB 90-125)
+1.4  Libel (CB 72-90)
+1.4 Privacy Torts (CB 90-97)
 
 ## Class 12 - February 28, 2022
-1.5 Sexually Explicit Expression - Obscenity and Sexually Explicit but Nonobscene Expression (CB 125-155)
+1.4 IIED (CB 97-103)
+1.5 Hate Speech: *R.A.V. v. St. Paul* (CB 108-114), and notes 3 and 4 following (CB 116-118);  
+*Virginia v. Black* (CB 119-124); *Elonis v. United States* (CB 124-125)
+1.5 Sexually Explicit Expression - Obscenity (CB 125-138)
 
-## Class 13 - March 2, 2022
-1.5 Sexually Explicit Expression - Sexually Explicit but Nonobscene Expression cont'd (CB 155-164)
+## Class 13 - March 2, 2022  
+1.5 Sexually Explicit Expression - Sexually Explicit but Nonobscene Expression (CB 144-164)
 1.5 Sexually Explicit Expression - Child Pornography (CB 164-169)
-1.6 Violent Speech in New Media (CB 196-200)
 
 ## Class 14 - March 7, 2022
+1.6 Violent Speech in New Media (CB 196-200)  
 1.7 Commercial Speech (CB 202-229)
 
 ## Class 15 - March 9, 2022
