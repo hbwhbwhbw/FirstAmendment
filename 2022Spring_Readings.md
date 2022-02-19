@@ -35,17 +35,28 @@ Note on American Humanist Association (Supp. 42-48)
 2.3 Overbreadth, Vagueness, and Prior Restraint (CB 417-455)
 
 ## Class 10 - February 21, 2022
-2.3 Prior Restraint (CB 435-455) (focus on Pentagon Papers and Nebraska Press)   
-1.3 Hostile Audiences (CB 57-72) (focus on Cantwell, Terminiello, Feiner, Edwards, Cox, and Cohen)
+
+### 2.3 Prior Restraint (CB 435-455)
+
+focus on Pentagon Papers and Nebraska Press
+
+### 1.3 Hostile Audiences (CB 57-72)
+
+focus on Cantwell, Terminiello, Feiner, Edwards, Cox, and Cohen
 
 ## Class 11 - February 23, 2022
-1.4  Libel
+
+### 1.4  Libel  
+
 Beauharnais (CB 73-74)  
 NYT v. Sullivan plus notes (CB 76-82)  
 Note on Berisha v. Lawson (Supp. 24-25)  
 The Scope of New York Times (CB 83-84)  
 Gertz v. Welch (CB 85-89), Dun & Bradstreet (CB 89-90)  
-1.4 Privacy Torts (CB 90-97) (read all but we will not discuss Zacchini v. Scripps-Howard (CB 92-93) in class)
+
+###  1.4 Privacy Torts (CB 90-97) 
+
+read all, but we will not discuss Zacchini v. Scripps-Howard (CB 92-93) in class
 
 ## Class 12 - February 28, 2022
 1.4 IIED (CB 97-103)
