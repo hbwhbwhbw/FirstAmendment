@@ -40,11 +40,13 @@ Note on American Humanist Association (Supp. 42-48)
 
 focus on Pentagon Papers and Nebraska Press
 
+
+
+## Class 11 - February 23, 2022
+
 ### 1.3 Hostile Audiences (CB 57-72)
 
 focus on Cantwell, Terminiello, Feiner, Edwards, Cox, and Cohen
-
-## Class 11 - February 23, 2022
 
 ### 1.4  Libel  
 
@@ -58,12 +60,15 @@ Gertz v. Welch (CB 85-89), Dun & Bradstreet (CB 89-90)
 Carrie Goldberg, [The Media Will Be Alright](https://knightcolumbia.org/blog/the-media-will-be-alright)  
 Nabiha Syed, [Sullivan is Not the Problem](https://knightcolumbia.org/blog/sullivan-is-not-the-problem)
 
+
+
+## Class 12 - February 28, 2022
 ###  1.4 Privacy Torts (CB 90-97)
 
 read all, but we will not discuss Zacchini v. Scripps-Howard (CB 92-93) in class
 
-## Class 12 - February 28, 2022
 1.4 IIED (CB 97-103)
+
 1.5 Hate Speech: *R.A.V. v. St. Paul* (CB 108-114), and notes 3 and 4 following (CB 116-118);  
 *Virginia v. Black* (CB 119-124); *Elonis v. United States* (CB 124-125)
 1.5 Sexually Explicit Expression - Obscenity (CB 125-138)
