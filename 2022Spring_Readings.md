@@ -51,10 +51,7 @@ focus on Cantwell, Terminiello, Feiner, Edwards, Cox, and Cohen
 ### 1.4  Libel  
 
 Beauharnais (CB 73-74)  
-NYT v. Sullivan plus notes (CB 76-82)  
-Note on Berisha v. Lawson (Supp. 24-25)  
-The Scope of New York Times (CB 83-84)  
-Gertz v. Welch (CB 85-89), Dun & Bradstreet (CB 89-90)  
+
 
 ***Optional***
 Carrie Goldberg, [The Media Will Be Alright](https://knightcolumbia.org/blog/the-media-will-be-alright)  
@@ -63,9 +60,15 @@ Nabiha Syed, [Sullivan is Not the Problem](https://knightcolumbia.org/blog/sulli
 
 
 ## Class 12 - February 28, 2022
+
+NYT v. Sullivan plus notes (CB 76-82)  
+Note on Berisha v. Lawson (Supp. 24-25)  
+The Scope of New York Times (CB 83-84)  
+Gertz v. Welch (CB 85-89), Dun & Bradstreet (CB 89-90)  
+
 ###  1.4 Privacy Torts (CB 90-97)
 
-read all, but we will not discuss Zacchini v. Scripps-Howard (CB 92-93) in class
+read all, but we will not discuss in class
 
 1.4 IIED (CB 97-103)
 
