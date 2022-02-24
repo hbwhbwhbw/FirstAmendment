@@ -40,8 +40,6 @@ Note on American Humanist Association (Supp. 42-48)
 
 focus on Pentagon Papers and Nebraska Press
 
-
-
 ## Class 11 - February 23, 2022
 
 ### 1.3 Hostile Audiences (CB 57-72)
@@ -56,7 +54,6 @@ Beauharnais (CB 73-74)
 ***Optional***
 Carrie Goldberg, [The Media Will Be Alright](https://knightcolumbia.org/blog/the-media-will-be-alright)  
 Nabiha Syed, [Sullivan is Not the Problem](https://knightcolumbia.org/blog/sullivan-is-not-the-problem)
-
 
 
 ## Class 12 - February 28, 2022
@@ -96,7 +93,7 @@ SPRING BREAK
 ## Class 17 - March 23, 2022
 2.2 Government Power to Limit Speech in Conferral of Benefits as Regulator and Employer - Public Forums and Public Property and the "Time, Place and Manner" Test (CB 280-317)
 
-## Class 18 - March 28, 2022
+## Class 18 - March 28, 2022 - *Recorded Makeup Class*
 Speaker Access to Public Places other than Traditional Public Forums (CB 317-360)
 
 ## Class 19 - March 30, 2022
