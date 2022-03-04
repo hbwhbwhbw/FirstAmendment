@@ -77,14 +77,13 @@ read all, but we will not discuss in class
 1.5 Sexually Explicit Expression - Sexually Explicit but Nonobscene Expression (CB 144-164)
 
 ## Class 14 - March 7, 2022
-1.5 Sexually Explicit Expression - Child Pornography (CB 164-169)
+1.5 Sexually Explicit Expression - Child Pornography (CB 164-169) (*Ferber*, *Ashcroft v. Free Speech Coal*.)
 
-1.6 Violent Speech in New Media (CB 196-200)  
-1.7 Commercial Speech (CB 202-229)
+1.6 Violent Speech in New Media (CB 196-200) (*Stevens*, *Brown v. Entm't Merchants*)
+1.7 Commercial Speech (CB 202-206, 212-227) (*Virginia Pharmacy Board*; *Central Hudson* and notes 2 and 3 following; *44 Liquormart* and notes 1 and 3 following;  *Sorrell v. IMS Health*)
 
 ## Class 15 - March 9, 2022
 2.1 Content-Based and Content-Neutral Regulations (CB 229-254)
-Sorrell v. IMS Health (Canvas)
 
 SPRING BREAK
 
