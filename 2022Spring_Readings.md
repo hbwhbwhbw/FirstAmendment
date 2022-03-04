@@ -71,13 +71,14 @@ read all, but we will not discuss in class
 
 1.5 Hate Speech: *R.A.V. v. St. Paul* (CB 108-114), and notes 3 and 4 following (CB 116-118);  
 *Virginia v. Black* (CB 119-124); *Elonis v. United States* (CB 124-125)
-1.5 Sexually Explicit Expression - Obscenity (CB 125-138)
 
 ## Class 13 - March 2, 2022  
+1.5 Sexually Explicit Expression - Obscenity (CB 125-138) (*Roth*, *Alberts*, *Miller*, *Paris Adult Theatre*)
 1.5 Sexually Explicit Expression - Sexually Explicit but Nonobscene Expression (CB 144-164)
-1.5 Sexually Explicit Expression - Child Pornography (CB 164-169)
 
 ## Class 14 - March 7, 2022
+1.5 Sexually Explicit Expression - Child Pornography (CB 164-169)
+
 1.6 Violent Speech in New Media (CB 196-200)  
 1.7 Commercial Speech (CB 202-229)
 
