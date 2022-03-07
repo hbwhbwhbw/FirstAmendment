@@ -80,10 +80,21 @@ read all, but we will not discuss in class
 1.5 Sexually Explicit Expression - Child Pornography (CB 164-169) (*Ferber*, *Ashcroft v. Free Speech Coal*.)
 
 1.6 Violent Speech in New Media (CB 196-200) (*Stevens*, *Brown v. Entm't Merchants*)
-1.7 Commercial Speech (CB 202-206, 212-227) (*Virginia Pharmacy Board*; *Central Hudson* and notes 2 and 3 following; *44 Liquormart* and notes 1 and 3 following;  *Sorrell v. IMS Health*)
 
 ## Class 15 - March 9, 2022
-2.1 Content-Based and Content-Neutral Regulations (CB 229-254)
+### 1.7 Commercial Speech (CB 202-206, 212-227)
+
+*Virginia Pharmacy Board*; *Central Hudson* and notes 2 and 3 following; *44 Liquormart* and notes 1 and 3 following;  *Sorrell v. IMS Health*
+
+### 2.1 The Distinction Between Content-Based and Content-Neutral Laws
+
+*Reed v. Town of Gilbert* (CB 229-234) plus *Mosley* and *Carey* in note 1 (CB 234-235); note 3 on speaker restrictions (CB 242); note 4 on communicative impact (CB 242); note 5 on content neutrality (CB 242-243)
+
+### 2.1 Content-Neutral Regulation and Symbolic Conduct
+
+*United States v. O'Brien* (CB 246-250); notes 2 and 3 following (CB 251-252)
+
+
 
 SPRING BREAK
 
