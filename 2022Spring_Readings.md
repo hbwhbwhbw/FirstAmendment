@@ -111,7 +111,13 @@ Speaker Access to Public Places other than Traditional Public Forums (CB 317-360
 3.1 Compelled Speech - the Right _Not_ to Speak (CB 459-472) (Minersville v. Gobitis, West Virginia Board of Education v. Barnette, Wooley v. Maynard, Talley v. California, McIntyre v. Ohio Elections, NIFLA v. Becerra, Miami Herald v. Tornill, PruneYard v. Robins, Turner I and Turner II; also review Logan Valley, Lloyd Corp. v. Tanner, and Hudgens v. NLRB, CB 350-351)
 
 ## Class 20 - April 4, 2022
-3.2 Freedom of Expressive Association (CB 488-522)
+3.2 Freedom of Expressive Association
+- CB 489-493 (NAACP v. Alabama, Shelton v. Tucker, Gibson v. Florida Legislative Investigation Comm.)
+- CB 498-99 (NAACP v. Button)
+- CB 501-505 (NAACP v. Claiborne Hardware, Int'l Longshoremen's Ass'n v. Allied Int'l, Humanitarian Law Project)
+- CB 506-509 (loyalty oath cases)
+- CB 509-515 (union fees cases)
+- CB 516-522 (Jaycees, Rotary Club, Boy Scouts of America v. Dale); CB 484-486 (Hurley).
 
 ## Class 21 - April 6, 2022
 3.3 Money and Political Campaigns (CB 530-556)
