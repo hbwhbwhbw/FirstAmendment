@@ -108,7 +108,7 @@ SPRING BREAK
 Speaker Access to Public Places other than Traditional Public Forums (CB 317-360)
 
 ## Class 19 - March 30, 2022
-3.1 Compelled Speech - the Right _Not_ to Speak (CB 459-472) (Minersville v. Gobitis, West Virginia Board of Education v. Barnette, Wooley v. Maynard, Talley v. California, McIntyre v. Ohio Elections, NIFLA v. Becerra, Miami Herald v. Tornill, PruneYard v. Robins, Turner I and Turner II; also review Logan Valley, Lloyd Corp. v. Tanner, and Hudgens v. NLRB, CB 350-351)
+3.1 Compelled Speech - the Right _Not_ to Speak (CB 459-478) (Minersville v. Gobitis, West Virginia Board of Education v. Barnette, Wooley v. Maynard, Talley v. California, McIntyre v. Ohio Elections, NIFLA v. Becerra, Miami Herald v. Tornill, PruneYard v. Robins, Turner I and Turner II; also review Logan Valley, Lloyd Corp. v. Tanner, and Hudgens v. NLRB, CB 350-351)
 
 ## Class 20 - April 4, 2022
 3.2 Freedom of Expressive Association
