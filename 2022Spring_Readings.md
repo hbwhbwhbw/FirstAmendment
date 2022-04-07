@@ -122,20 +122,16 @@ Speaker Access to Public Places other than Traditional Public Forums (CB 317-360
 - CB 509-515 (union fees cases)
 - CB 516-522 (Jaycees, Rotary Club, Boy Scouts of America v. Dale)
 
-3.3 Money and Political Campaigns
+## Class 22 - April 11, 2022
+### 3.3 Money and Political Campaigns
 - CB 530-538 (Buckley v. Valeo)
 - CB 544-547 (First Nat'l Bank v. Bellotti)
 - CB 548-559 (Enactment of and Constitutional Challenges to BCRA, McConnell v. FEC, FEC v. Wisconsin Right to Life)
-
-## Class 22 - April 11, 2022
-### 3.3 Money and Political Campaigns cont'd
 - CB 560-572 (Davis v. FEC, Arizona Free Enterprise Club v. Bennett, Citizens United)
 
-### 3.4 Journalism and Media
-- CB 583-593 (Pell v. Procunier, Saxbe v. Wash. Post,  Houchins v. KQED; Gannett v. Depasquale, Richmond Newspapers v. Virginia, Globe Newspaper Co. v. Superior Court, Press Enterprise I & II)
-
 ## Class 23 - April 13, 2022
-3.4 Journalism and Media (CB 583-613)
+### 3.4 Journalism and Media
+- CB 583-593 (Pell v. Procunier, Saxbe v. Wash. Post,  Houchins v. KQED; Gannett v. Depasquale, Richmond Newspapers v. Virginia, Globe Newspaper Co. v. Superior Court, Press Enterprise I & II) (CB 583-613)
 
 ## Class 24 - April 18, 2022
 1.6 Indecent and Sexual Speech in New Media (CB 170-196)
