@@ -131,7 +131,9 @@ Speaker Access to Public Places other than Traditional Public Forums (CB 317-360
 
 ## Class 23 - April 13, 2022
 ### 3.4 Journalism and Media
-- CB 583-593 (Pell v. Procunier, Saxbe v. Wash. Post,  Houchins v. KQED; Gannett v. Depasquale, Richmond Newspapers v. Virginia, Globe Newspaper Co. v. Superior Court, Press Enterprise I & II) (CB 583-613)
+- CB 583-593 (Pell v. Procunier, Saxbe v. Wash. Post,  Houchins v. KQED; Gannett v. Depasquale, Richmond Newspapers v. Virginia, Globe Newspaper Co. v. Superior Court, Press Enterprise I & II)
+- CB 596-601 (Branzburg v. Hayes)
+- United States v. Sterling (Canvas)
 
 ## Class 24 - April 18, 2022
 1.6 Indecent and Sexual Speech in New Media (CB 170-196)
