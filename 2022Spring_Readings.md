@@ -136,6 +136,15 @@ Speaker Access to Public Places other than Traditional Public Forums (CB 317-360
 - United States v. Sterling (Canvas)
 
 ## Class 24 - April 18, 2022
-1.6 Indecent and Sexual Speech in New Media (CB 170-196)
-3.4 The First Amendment and the Broadcast Media (CB 613-627)
-USTA v. FCC (Kavanaugh, J., dissenting) (Canvas)
+### 1.6 Indecent and Sexual Speech in New Media (CB 170-196)
+- FCC v. Pacifica
+- Sable Communications v. FCC
+- Denver Area Educational Telecommunications Consortium v. FCC
+- Reno v. ACLU
+- Ashcroft v. ACLU
+- Ashcroft v. Free Speech Coalition
+- Packingham v. North Carolina
+- Knight Institute v. Trump
+### 3.4 The First Amendment and the Broadcast Media (CB 613-627)
+- Red Lion v. FCC
+- Review Turner I and Turner II (CB 476-478)
