@@ -148,3 +148,5 @@ Speaker Access to Public Places other than Traditional Public Forums (CB 317-360
 ### 3.4 The First Amendment and the Broadcast Media (CB 613-627)
 - Red Lion v. FCC
 - Review Turner I and Turner II (CB 476-478)
+
+## Review Session - April 20, 2022, 10 a.m.
