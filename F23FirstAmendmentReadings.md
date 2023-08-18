@@ -10,19 +10,19 @@ Sierra Crane Murdoch, _Take the Medicine to the White Man_, Harpers (June 2023) 
 4.3 Free Exercise cont'd (CB 675-690)  
 
 ## Class 3 - August 22, 2023
-4.3 Free Exercise cont'd (CB 691-709)
+4.3 Free Exercise cont'd (CB 691-709)  
 4.4 The Establishment Clause - Public Financial Aid to Religious Institutions (CB 710-721)  
 
 ## Class 4 - August 24, 2023
-4.4 The Establishment Clause - Public Financial Aid to Religious Institutions cont'd (CB 721-733)
+4.4 The Establishment Clause - Public Financial Aid to Religious Institutions cont'd (CB 721-733)  
 4.4 The Establishment Clause - Religion in Public Schools (CB 733-751)  
 
 ## Class 5 - August 29, 2023
 4.4 The Establishment Clause - Religion in Public Schools (CB 751-759) 
-4.4 The Establishment Clause - Public Displays of Religious Symbols (CB 759-792)
+4.4 The Establishment Clause - Public Displays of Religious Symbols (CB 759-792)  
 
 ## Class 6 - August 31, 2023
-4.5 Reconciling the Religion Clauses (CB 792-805)
+4.5 Reconciling the Religion Clauses (CB 792-805)  
 
 Problem 1: Spencer v. Nigrelli (2d Cir. 2023)
 Does a New York statute making it a felony for individuals who have concealed-carry licenses to possess a firearm at a place of worship violate the First Amendment?
