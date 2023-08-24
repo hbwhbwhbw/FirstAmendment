@@ -66,10 +66,10 @@ United States v. Hansen (2023) (Canvas)
 Problem 2: Little v. Llano County (W.D. Tex. 2023)  
 Does the removal of 17 books from the Llano County library system violate the First Amendment?
 
-Appellant's Opening Brief
-Brief of Plaintiffs-Appellees
-Appellants' Reply
-Amicus Brief of Texas Freedom to Read Foundation et al.
+Appellant's Opening Brief  
+Brief of Plaintiffs-Appellees   
+Appellants' Reply  
+Amicus Brief of Texas Freedom to Read Foundation et al.  
 Amicus Brief of FIRE
 
 ## Class 14 - September 28, 2023
