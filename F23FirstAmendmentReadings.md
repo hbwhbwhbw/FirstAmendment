@@ -18,7 +18,7 @@ Sierra Crane Murdoch, _Take the Medicine to the White Man_, Harpers (June 2023) 
 4.4 The Establishment Clause - Religion in Public Schools (CB 733-751)  
 
 ## Class 5 - August 29, 2023
-4.4 The Establishment Clause - Religion in Public Schools (CB 751-759) 
+4.4 The Establishment Clause - Religion in Public Schools (CB 751-759)  
 4.4 The Establishment Clause - Public Displays of Religious Symbols (CB 759-792)  
 
 ## Class 6 - August 31, 2023
