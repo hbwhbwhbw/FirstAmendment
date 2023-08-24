@@ -63,13 +63,14 @@ United States v. Hansen (2023) (Canvas)
 1.5 Sexually Explicit Expression - Sexually Explicit but Nonobscene Expression cont'd (CB 155-166)
 1.5 Sexually Explicit Expression - Child Pornography (CB 166-171)  
 
-Problem 2: Fayetteville Public Library v. Crawford County (W.D. Ark. 2023)  
-Does an Arkansas statute that makes it a crime to make available "harmful items to minors," and that requires public libraries to establish a process for individuals to "challenge" the propriety of including materials in the library's collection, violate the First Amendment?
+Problem 2: Little v. Llano County (W.D. Tex. 2023)  
+Does the removal of 17 books from the Llano County library system violate the First Amendment?
 
-Plaintiffs' Brief in Support of their Motion for a Preliminary Injunction
-Defendants' Brief in Opposition to the Motion for a Preliminary Injunction
-Plaintiffs' Reply
-Transcript of Motion Hearing
+Appellant's Opening Brief
+Brief of Plaintiffs-Appellees
+Appellants' Reply
+Amicus Brief of Texas Freedom to Read Foundation et al.
+Amicus Brief of FIRE
 
 ## Class 14 - September 28, 2023
 2.1 Content-Based and Content-Neutral Regulations (CB 231-286)
