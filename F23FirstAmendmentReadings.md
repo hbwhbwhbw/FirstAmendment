@@ -19,10 +19,10 @@ Sierra Crane Murdoch, _Take the Medicine to the White Man_, Harpers (June 2023) 
 
 ## Class 5 - August 29, 2023
 4.4 The Establishment Clause - Religion in Public Schools (CB 751-759)  
-4.4 The Establishment Clause - Public Displays of Religious Symbols (CB 759-792)  
+4.4 The Establishment Clause - Public Displays of Religious Symbols (CB 759-773)  
 
 ## Class 6 - August 31, 2023
-4.5 Reconciling the Religion Clauses (CB 792-805)  
+4.5 Reconciling the Religion Clauses (CB 773-805)  
 
 Problem 1: Spencer v. Nigrelli (2d Cir. 2023)
 Does a New York statute making it a felony for individuals who have concealed-carry licenses to possess a firearm at a place of worship violate the First Amendment?
