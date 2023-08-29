@@ -53,7 +53,6 @@ United States v. Hansen (2023) (Canvas)
 
 ## Class 11 - September 19, 2023
 1.4 Injury to Reputation, Sensibility, Dignity, Equality - Privacy Torts, IIED, and Hate Speech (CB 92-127) 
-Counterman v. Colorado (2023) (Canvas)
 
 ## Class 12 - September 21, 2023
 1.5 Sexually Explicit Expression - Obscenity and Sexually Explicit but Nonobscene Expression (CB 127-155)  
@@ -72,12 +71,10 @@ Amicus Brief of Texas Freedom to Read Foundation et al.
 Amicus Brief of FIRE
 
 ## Class 14 - September 28, 2023
-2.1 Content-Based and Content-Neutral Regulations (CB 231-286)
-City of Austin, Texas v. Reagan National Advertising (2022) (Canvas)  
+2.1 Content-Based and Content-Neutral Regulations (CB 231-278)
 
 ## Class 15 - October 3, 2023
 2.2 Public Forums (CB 286-323)
-
 
 ## Class 16 - October 5, 2023
 2.2 Access to Public Places other than Traditional Public Forums (CB 323-369)  
@@ -87,7 +84,7 @@ Is it unconstitutional for government officials to block constituents on social 
 Petitioners' Brief  
 Response Brief  
 Reply Brief  
-Amicus Brief  
+Amicus Brief 
 
 # FALL BREAK
 
@@ -112,7 +109,7 @@ Response (due 9/13/2023)
 
 ## Class 21 - October 31, 2023
 3.4 Journalism and Media (CB 602-639)
-Tornillo & Red Lion (CB ??)
+Tornillo & Red Lion (CB 488)
 
 Case/Problem 5: PRESS Act
 
