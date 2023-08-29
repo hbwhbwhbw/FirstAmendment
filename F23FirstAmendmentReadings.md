@@ -42,7 +42,6 @@ Reply Brief for Steven Nigrelli
 ## Class 8 - September 7, 2023
 1.2 Incitement to Violence or Subversion cont'd (CB 31-55)
 1.3 Fighting Words (CB 56-61)
-Counterman v. Colorado (2023) (Canvas)
 
 ## Class 9 - September 12, 2023
 2.3 Overbreadth, Vagueness, and Prior Restraint (CB 434-475)
@@ -53,7 +52,8 @@ United States v. Hansen (2023) (Canvas)
 1.4 Injury to Reputation, Sensibility, Dignity, Equality - Libel (CB 73-92)  
 
 ## Class 11 - September 19, 2023
-1.4 Injury to Reputation, Sensibility, Dignity, Equality - Privacy Torts, IIED, and Hate Speech (CB 92-127)  
+1.4 Injury to Reputation, Sensibility, Dignity, Equality - Privacy Torts, IIED, and Hate Speech (CB 92-127) 
+Counterman v. Colorado (2023) (Canvas)
 
 ## Class 12 - September 21, 2023
 1.5 Sexually Explicit Expression - Obscenity and Sexually Explicit but Nonobscene Expression (CB 127-155)  
