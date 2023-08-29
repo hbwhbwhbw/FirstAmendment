@@ -36,7 +36,7 @@ Reply Brief for Steven Nigrelli
 # Free Expression
 
 ## Class 7 - September 5, 2023
-1.1 Free Speech - An Overview (CB 1-16)  
+1.1 Free Speech - An Overview (CB 1-10)  
 1.2 Incitement to Violence or Subversion (CB 16-31)  
 
 ## Class 8 - September 7, 2023
