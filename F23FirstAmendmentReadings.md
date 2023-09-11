@@ -45,14 +45,14 @@ Reply Brief for Steven Nigrelli
 
 ## Class 9 - September 12, 2023
 2.3 Overbreadth, Vagueness, and Prior Restraint (CB 434-475)
-United States v. Hansen (2023) (Canvas)  
 
 ## Class 10 - September 14, 2023
 1.3 Hostile Audiences (CB 61-73)  
 1.4 Injury to Reputation, Sensibility, Dignity, Equality - Libel (CB 73-92)  
 
 ## Class 11 - September 19, 2023
-1.4 Injury to Reputation, Sensibility, Dignity, Equality - Privacy Torts, IIED, and Hate Speech (CB 92-127) 
+1.4 Injury to Reputation, Sensibility, Dignity, Equality - Privacy Torts, IIED, and Hate Speech (CB 92-127)  
+United States v. Hansen (2023) (Canvas)  
 
 ## Class 12 - September 21, 2023
 1.5 Sexually Explicit Expression - Obscenity and Sexually Explicit but Nonobscene Expression (CB 127-155)  
