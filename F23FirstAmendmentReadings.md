@@ -59,7 +59,7 @@ Counterman v. Colorado (Canvas)
 1.5 Sexually Explicit Expression - Obscenity and Sexually Explicit but Nonobscene Expression (CB 127–40)  
 
 ## Class 13 - September 26, 2023
-1.5 Sexually Explicit Expression - Sexually Explicit but Nonobscene Expression cont'd (CB 146-166)
+1.5 Sexually Explicit Expression - Sexually Explicit but Nonobscene Expression cont'd (CB 146-166)  
 1.5 Sexually Explicit Expression - Child Pornography (CB 166-171)  
 
 Problem 2: Little v. Llano County (W.D. Tex. 2023)  
