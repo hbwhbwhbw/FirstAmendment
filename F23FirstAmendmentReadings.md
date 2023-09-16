@@ -51,14 +51,15 @@ Reply Brief for Steven Nigrelli
 1.4 Injury to Reputation, Sensibility, Dignity, Equality - Libel (CB 73-92)  
 
 ## Class 11 - September 19, 2023
-1.4 Injury to Reputation, Sensibility, Dignity, Equality - Privacy Torts, IIED, and Hate Speech (CB 92-127)  
-United States v. Hansen (2023) (Canvas)  
+1.4 Injury to Reputation, Sensibility, Dignity, Equality - Privacy Torts, IIED, and Hate Speech (CB 92-116, 118 n.3 (Note on Wisconsin v. Mitchell)  
 
 ## Class 12 - September 21, 2023
-1.5 Sexually Explicit Expression - Obscenity and Sexually Explicit but Nonobscene Expression (CB 127-155)  
+1.4 Hate Speech cont'd (CB 121-27)
+Counterman v. Colorado (Canvas)
+1.5 Sexually Explicit Expression - Obscenity and Sexually Explicit but Nonobscene Expression (CB 127–40)  
 
 ## Class 13 - September 26, 2023
-1.5 Sexually Explicit Expression - Sexually Explicit but Nonobscene Expression cont'd (CB 155-166)
+1.5 Sexually Explicit Expression - Sexually Explicit but Nonobscene Expression cont'd (CB 146-166)
 1.5 Sexually Explicit Expression - Child Pornography (CB 166-171)  
 
 Problem 2: Little v. Llano County (W.D. Tex. 2023)  
