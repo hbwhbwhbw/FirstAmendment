@@ -59,7 +59,7 @@ Counterman v. Colorado (Canvas)
 1.5 Sexually Explicit Expression - Obscenity and Sexually Explicit but Nonobscene Expression (CB 127–40)  
 
 ## Class 13 - September 26, 2023
-1.5 Sexually Explicit Expression - Sexually Explicit but Nonobscene Expression cont'd (CB 146-166)  
+1.5 Sexually Explicit Expression - Sexually Explicit but Nonobscene Expression cont'd (CB 146-152, 153 n.3, 153-165)   
 1.5 Sexually Explicit Expression - Child Pornography (CB 166-171)  
 
 Problem 2: Little v. Llano County (W.D. Tex. 2023)  
@@ -72,7 +72,7 @@ Amicus Brief of Texas Freedom to Read Foundation et al.
 Amicus Brief of FIRE
 
 ## Class 14 - September 28, 2023
-2.1 Content-Based and Content-Neutral Regulations (CB 231-278)
+2.1 Content-Based and Content-Neutral Regulations (CB 231-240; 240-43 n.3 [_Mosley_, _Carey_ and _Simon & Schuster_]; 249-51 nn. 7-8; 252-256; 258-59 n. 4; 260-68)
 
 ## Class 15 - October 3, 2023
 2.2 Public Forums (CB 286-323)
