@@ -75,13 +75,13 @@ Amicus Brief of FIRE
 2.1 Content-Based and Content-Neutral Regulations (CB 231-240; 240-43 n.3 [_Mosley_, _Carey_ and _Simon & Schuster_]; 249-51 nn. 7-8; 252-256; 258-59 n. 4; 260-68)
 
 ## Class 15 - October 3, 2023
-2.2 Public Forums (CB 286-323)
+2.2 Public Forums (CB 286-297 nn. 1, 2, 4; 297-311, 312-314 nn.1-2)
 
 ## Class 16 - October 5, 2023
-2.2 Access to Public Places other than Traditional Public Forums (CB 323-369)  
+2.2 Access to Public Places other than Traditional Public Forums (CB 323-329 nn. 1-2; 332-336 nn. 2-3; 339-349 nn.6-8; 354-58 nn. 12-13; 360-69)  
 
 Case/Problem 3: O'Connor-Ratcliff v. Garnier (2023)  
-Is it unconstitutional for government officials to block constituents on social media?
+Is it unconstitutional for government officials to block constituents on social media?  
 Petitioners' Brief  
 Response Brief  
 Reply Brief  
@@ -111,6 +111,7 @@ Response (due 9/13/2023)
 ## Class 21 - October 31, 2023
 3.4 Journalism and Media (CB 602-639)
 Tornillo & Red Lion (CB 488)
+350 n. 10 (AETC v. Forbes)
 
 Case/Problem 5: PRESS Act
 
