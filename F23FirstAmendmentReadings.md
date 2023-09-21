@@ -61,6 +61,7 @@ Counterman v. Colorado (Canvas)
 ## Class 13 - September 26, 2023
 1.5 Sexually Explicit Expression - Sexually Explicit but Nonobscene Expression cont'd (CB 146-152, 153 n.3, 153-165)   
 1.5 Sexually Explicit Expression - Child Pornography (CB 166-171)  
+2.2 Government Power to Limit Speech - Book Removal From Public School Libraries (CB 371-374)
 
 Problem 2: Little v. Llano County (W.D. Tex. 2023)  
 Does the removal of 17 books from the Llano County library system violate the First Amendment?
@@ -90,7 +91,7 @@ Amicus Brief
 # FALL BREAK
 
 ## Class 17 - October 17, 2023
-2.2 Spheres of Government Control (CB 369-390)  
+2.2 Spheres of Government Control (CB 369-371, 377-396)  
 
 ## Class 18 - October 19, 2023
 1.7 Commercial Speech (CB 203-231)
@@ -111,7 +112,7 @@ Response (due 9/13/2023)
 ## Class 21 - October 31, 2023
 3.4 Journalism and Media (CB 602-639)
 Tornillo & Red Lion (CB 488)
-350 n. 10 (AETC v. Forbes)
+AETC v. Forbes (CB 350 n. 10)
 
 Case/Problem 5: PRESS Act
 
