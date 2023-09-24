@@ -94,7 +94,7 @@ Amicus Brief
 2.2 Spheres of Government Control (CB 369-371, 377-396)  
 
 ## Class 18 - October 19, 2023
-1.7 Commercial Speech (CB 203-231)
+1.7 Commercial Speech (CB 203-231)  
 Robert Post, Compelled Commercial Speech (Canvas)  
 
 ## Class 19 - October 24, 2023
