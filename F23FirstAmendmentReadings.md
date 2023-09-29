@@ -73,13 +73,26 @@ Amicus Brief of Texas Freedom to Read Foundation et al.
 Amicus Brief of FIRE
 
 ## Class 14 - September 28, 2023
-2.1 Content-Based and Content-Neutral Regulations (CB 231-240; 240-43 n.3 [_Mosley_, _Carey_ and _Simon & Schuster_]; 249-51 nn. 7-8; 252-256; 258-59 n. 4; 260-68)
+2.1 Content-Based and Content-Neutral Regulations (CB 231-240; 240-43 n.3 [_Mosley_, _Carey_ and _Simon & Schuster_]; 249-51 nn. 7-8)  
 
 ## Class 15 - October 3, 2023
-2.2 Public Forums (CB 286-297 nn. 1, 2, 4; 297-311, 312-314 nn.1-2)
+2.1 Content-Neutral Regulations cont'd (CB 252-256 (United States v. O'Brien); 258-59 n. 4 (Arcara v. Cloud Books); 260-68 (flag desecration cases); 271-278 (Holder v. Humanitarian Law Project))
 
-## Class 16 - October 5, 2023
-2.2 Access to Public Places other than Traditional Public Forums (CB 323-329 nn. 1-2; 332-336 nn. 2-3; 339-349 nn.6-8; 354-58 nn. 12-13; 360-69)  
+2.2 Public Forums (CB 286-297 nn. 1, 2, 4 (Massachusetts v. Davis, Hague v. CIO, Schneider v. New Jersey, Martin v. City of Struthers, Kovacs v. Cooper, City of Ladue v. Gilleo, Watchtower Bible & Tract Soc'y v. Stratton))  
+
+## Class 16 - October 5, 2023  
+2.2 Public Forums cont'd (297-311 (Cox v. Louisiana, Heffron v. ISKCON, Metromedia v. San Diego, City Council v. Taxpayers for Vincent, Clark v. Community for Creative Non-Violence); 312-314 nn.1-2 (Ward v. Rock Against Racism, Frisby v. Schultz))  
+
+2.2 Access to Public Places other than Traditional Public Forums (CB 323-329 (notes on libraries, jails, schools, public transportation, municipal theaters); 332-336 (notes 2 and 3 on mailboxes and teachers' mailboxes); 339-349 (notes 6-8 on airport terminals, non-physical limited public forums, license plates); 354-58 (notes 12 and 13 on student organization membership, access to private property))
+
+# FALL BREAK
+
+## Class 17 - October 17, 2023
+2.2 Spheres of Government Control (364-69 (Pleasant Grove v. Summum, Shurtleff v. City of Boston); CB 369-371, 405-426)  
+
+## Class 18 - October 19, 2023
+1.7 Commercial Speech (CB 203-231)  
+Robert Post, Compelled Commercial Speech (Canvas)  
 
 Case/Problem 3: O'Connor-Ratcliff v. Garnier (2023)  
 Is it unconstitutional for government officials to block constituents on social media?  
@@ -88,22 +101,14 @@ Response Brief
 Reply Brief  
 Amicus Brief 
 
-# FALL BREAK
-
-## Class 17 - October 17, 2023
-2.2 Spheres of Government Control (CB 369-371, 377-396)  
-
-## Class 18 - October 19, 2023
-1.7 Commercial Speech (CB 203-231)  
-Robert Post, Compelled Commercial Speech (Canvas)  
-
 ## Class 19 - October 24, 2023
 3.1 Compelled Speech (CB 475-504)
 
 Case/Problem 4: NCPPR v. SEC (2d Circuit 2023)  
 Opening Brief
-Intervenors' Brief (due 8/8/2023)
-Response (due 9/13/2023)
+Intervenors' Brief 
+Response 
+Reply Brief  
 
 ## Class 20 - October 26, 2023 (recorded lecture)
 3.2 Freedom of Expressive Association (CB 504-541)
