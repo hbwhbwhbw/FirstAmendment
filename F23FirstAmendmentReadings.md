@@ -76,7 +76,7 @@ Amicus Brief of FIRE
 2.1 Content-Based and Content-Neutral Regulations (CB 231-240; 240-43 n.3 [_Mosley_, _Carey_ and _Simon & Schuster_]; 249-51 nn. 7-8)  
 
 ## Class 15 - October 3, 2023
-2.1 Content-Neutral Regulations cont'd (CB 252-256 (United States v. O'Brien); 258-59 n. 4 (Arcara v. Cloud Books); 260-68 (flag desecration cases); 271-278 (Holder v. Humanitarian Law Project))
+2.1 Content-Neutral Regulations cont'd (CB 252-256 (United States v. O'Brien); 258-59 n. 4 (Arcara v. Cloud Books); 260-68 (flag desecration cases))
 
 2.2 Public Forums (CB 286-297 nn. 1, 2, 4 (Massachusetts v. Davis, Hague v. CIO, Schneider v. New Jersey, Martin v. City of Struthers, Kovacs v. Cooper, City of Ladue v. Gilleo, Watchtower Bible & Tract Soc'y v. Stratton))  
 
