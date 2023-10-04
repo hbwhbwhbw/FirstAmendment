@@ -105,9 +105,9 @@ Amicus Brief
 3.1 Compelled Speech (CB 475-504)
 
 Case/Problem 4: NCPPR v. SEC (2d Circuit 2023)  
-Opening Brief
-Intervenors' Brief 
-Response 
+Opening Brief  
+Intervenors' Brief  
+Response  
 Reply Brief  
 
 ## Class 20 - October 26, 2023 (recorded lecture)
@@ -127,7 +127,7 @@ Case/Problem 5: PRESS Act
 ## No Class November 7 - Reading Day
 
 ## Class 23 - November 9, 2023
-Campaign Finance I
+3.3 Money and Political Campaigns (CB 549-557 (Buckley v. Valeo); 563-566 n. 2 on expenditures by corporations for political speech; 568-579 (McConnell and WRTL))
 
 ## Class 24 - November 14, 2023
 Campaign Finance
