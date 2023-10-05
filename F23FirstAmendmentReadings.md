@@ -92,7 +92,6 @@ Amicus Brief of FIRE
 
 ## Class 18 - October 19, 2023
 1.7 Commercial Speech (CB 203-231)  
-Robert Post, Compelled Commercial Speech (Canvas)  
 
 Case/Problem 3: O'Connor-Ratcliff v. Garnier (2023)  
 Is it unconstitutional for government officials to block constituents on social media?  
@@ -103,6 +102,7 @@ Amicus Brief
 
 ## Class 19 - October 24, 2023
 3.1 Compelled Speech (CB 475-504)
+Robert Post, Compelled Commercial Speech (Canvas)  
 
 Case/Problem 4: NCPPR v. SEC (2d Circuit 2023)  
 Opening Brief  
