@@ -127,7 +127,7 @@ Case/Problem 5: PRESS Act
 ## No Class November 7 - Reading Day
 
 ## Class 23 - November 9, 2023
-3.3 Money and Political Campaigns (CB 549-557 (Buckley v. Valeo); 563-566 n. 2 on expenditures by corporations for political speech; 568-579 (McConnell and WRTL))
+3.3 Money and Political Campaigns (CB 549-557 (Buckley v. Valeo); 563-568 notes 2 and 3 on First National Bank of Boston v. Bellotti, FEC v. MCFL, and Austin v. Michigan Chamber of Commerce; 568-579 (McConnell and WRTL); 579-583 notes 4 and 5 on Davis v. FEC and Arizona Free Enterprise Club v. Bennett; 583-591 (Citizens United v. FEC); 596-601 (McCutcheon v. FEC))
 
 ## Class 24 - November 14, 2023
 Campaign Finance
