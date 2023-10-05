@@ -101,7 +101,7 @@ Reply Brief
 Amicus Brief 
 
 ## Class 19 - October 24, 2023
-3.1 Compelled Speech (CB 475-504)
+3.1 Compelled Speech (CB 475-504)  
 Robert Post, Compelled Commercial Speech (Canvas)  
 
 Case/Problem 4: NCPPR v. SEC (2d Circuit 2023)  
@@ -115,14 +115,14 @@ Reply Brief
 303 Creative v. Elenis (Canvas)
 
 ## Class 21 - October 31, 2023
-3.4 Journalism and Media (CB 602-639)
-Tornillo & Red Lion (CB 488)
-AETC v. Forbes (CB 350 n. 10)
+3.4 Journalism and Media (CB 602-639)  
+Tornillo & Red Lion (CB 488)  
+AETC v. Forbes (CB 350 n. 10)  
 
 Case/Problem 5: PRESS Act
 
 ## Class 22 - November 2, 2023
-1.6 Speech in New Media (CB 171-203)
+1.6 Speech in New Media (CB 171-203)  
 
 ## No Class November 7 - Reading Day
 
@@ -130,4 +130,4 @@ Case/Problem 5: PRESS Act
 3.3 Money and Political Campaigns (CB 549-557 (Buckley v. Valeo); 563-568 notes 2 and 3 on First National Bank of Boston v. Bellotti, FEC v. MCFL, and Austin v. Michigan Chamber of Commerce; 568-579 (McConnell and WRTL); 579-583 notes 4 and 5 on Davis v. FEC and Arizona Free Enterprise Club v. Bennett; 583-591 (Citizens United v. FEC); 596-601 (McCutcheon v. FEC))
 
 ## Class 24 - November 14, 2023
-Campaign Finance
+Catch-up day/review day
