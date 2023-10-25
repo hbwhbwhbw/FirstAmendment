@@ -111,7 +111,7 @@ Response
 Reply Brief  
 
 ## Class 20 - October 26, 2023 (recorded lecture)
-3.2 Freedom of Expressive Association (CB 504-541)
+3.2 Freedom of Expressive Association (CB 504-525, 529-541)
 303 Creative v. Elenis (Canvas)
 
 ## Class 21 - October 31, 2023
