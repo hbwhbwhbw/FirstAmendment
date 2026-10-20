@@ -1,4 +1,4 @@
 # First Amendment
-## Fall 2023
+## Spring 2027
 
-View the reading list and class schedule at <https://hbwhbwhbw.github.io/FirstAmendment/F23FirstAmendmentReadings>.
+View the reading list and class schedule at <https://hbwhbwhbw.github.io/FirstAmendment/2027Spring_Readings>.
