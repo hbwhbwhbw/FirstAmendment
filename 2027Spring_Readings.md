@@ -1,17 +1,17 @@
 # Religious Freedom
 
-Class 1.        Wednesday, January 20, 2027
-4.1 The Religion Clauses - A Brief History of the Religion Clauses (CB 668–675)  
+Class 1.        Wednesday, January 20, 2027  
+4.1 The Religion Clauses - A Brief History of the Religion Clauses (CB 668–675). 
 4.2 The Definition of “Religion” (CB 675–680)  
-4.3 The Free Exercise of Religion (CB 680–690)
+4.3 The Free Exercise of Religion (CB 680–690)  
 
-Class 2.        Monday, January 25, 2027
-4.3 Free Exercise cont’d (CB 690–729)
-Mahmoud v. Taylor (CB Supplement, 17-26)
-Mirabelli v. Bonta (Canvas)
+Class 2.        Monday, January 25, 2027  
+4.3 Free Exercise cont’d (CB 690–729)  
+Mahmoud v. Taylor (CB Supplement, 17-26)  
+Mirabelli v. Bonta (Canvas)  
 
-Class 3.        Wednesday, January 27, 2027
-4.4 The Establishment Clause - Public Financial Aid to Religious Institutions (CB 729–753)
+Class 3.        Wednesday, January 27, 2027. 
+4.4 The Establishment Clause - Public Financial Aid to Religious Institutions (CB 729–753). 
 
 Class 4.        Monday, February 1, 2027
 4.4 The Establishment Clause - Religion in Public Schools (CB 753–777)
