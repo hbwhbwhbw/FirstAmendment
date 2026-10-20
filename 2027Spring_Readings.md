@@ -9,15 +9,13 @@
 4.3 Free Exercise cont’d (CB 690–729)  
 Mahmoud v. Taylor (CB Supplement, 17-26)  
 Mirabelli v. Bonta (Canvas)  
+## Class 3.        Wednesday, January 27, 2027 
+4.4 The Establishment Clause - Public Financial Aid to Religious Institutions (CB 729–753)  
+## Class 4.        Monday, February 1, 2027
+4.4 The Establishment Clause - Religion in Public Schools (CB 753–777)\
 
-Class 3.        Wednesday, January 27, 2027. 
-4.4 The Establishment Clause - Public Financial Aid to Religious Institutions (CB 729–753). 
-
-Class 4.        Monday, February 1, 2027
-4.4 The Establishment Clause - Religion in Public Schools (CB 753–777)
-
-Class 5.        Wednesday, February 3, 2027
-4.4 The Establishment Clause - Public Displays of Religious Symbols (CB 777–810)
+## Class 5.        Wednesday, February 3, 2027
+4.4 The Establishment Clause - Public Displays of Religious Symbols (CB 777–810)\
 
 Class 6.        Monday, February 8, 2027
 4.5 Reconciling the Religion Clauses (CB 810-831)
@@ -73,8 +71,8 @@ Class 17.     Wednesday, March 24, 2027
 Class 18.     Monday, March 29, 2027
 2.2 Spheres of Government Control cont'd (CB 408-441)
 
-Class 19.     Wednesday, March 31, 2027
-1.7 Commercial Speech (CB 199–226)
+## Class 19.     Wednesday, March 31, 2027
+1.7 Commercial Speech (CB 199–226)\
 Case/Problem 5: *Sarsour v. Swearingen*
 
 Class 20.     Monday, April 5, 2027
